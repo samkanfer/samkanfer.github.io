@@ -1,1 +1,0 @@
-Samuel Kanfer's Website
